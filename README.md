@@ -1,8 +1,6 @@
-### Hi there 👋
+![](https://media1.tenor.com/images/3a8d33122e08c1b01c2a54a967e09aae/tenor.gif?itemid=18166998)
 
 <!--
-**istemit/istemit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
