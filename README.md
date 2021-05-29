@@ -1,4 +1,4 @@
-![](https://tenor.com/view/thumbs-up-hacker-mmi-grenoble-hackerman-gif-11287448)
+![](https://media1.tenor.com/images/07988c63e7f4730bd4f5ac57d42440c5/tenor.gif?itemid=11287448)
 
 <!--
 Here are some ideas to get you started:
